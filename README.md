@@ -1,0 +1,1 @@
+Takk til Jakob V. for eksemplene!
